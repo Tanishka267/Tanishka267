@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Tanishka267
+- 👀 I’m interested in Coding 
+- 🌱 I’m currently learning C,C++,Python,Java
+- 💞️ I’m looking to collaborate on different projects related to coding
+- 📫 How to reach me you can email me at rockstar142607@outlook.com
+- 😄 Help me to learn & develop more interest in coding languages
